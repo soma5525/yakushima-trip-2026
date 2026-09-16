@@ -1,0 +1,1 @@
+# yakushima-trip-2026
